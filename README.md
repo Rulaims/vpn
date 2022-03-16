@@ -31,3 +31,5 @@ come on! 各种类型几乎都有了吧，月付、季付、年付、一次性�
 [NaikoCloud](https://naiko.cloud/auth/register?code=VaEK)
 
 [OKSS](https://okss.us/#/register?code=uLTK9oyA)
+
+个人建议，大家要多备几个梯子，因为到了一些重要性时间点，墙可能会异常强大哈哈哈，比如两会····
