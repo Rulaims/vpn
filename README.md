@@ -22,7 +22,7 @@ ps:下列排序不代表优劣顺序，各位自行食用。
 
 come on! 各种类型几乎都有了吧，月付、季付、年付、一次性永久！月结永久！
 
-[QtyCloud](https://wwa.qtycloud.xyz/auth/register?code=5Y6w)
+[ELK_Cloud](https://www.elkcloud.cc/auth/register?code=5Y6w)
 
 [超级跑车](http://paoche.one/#/register?code=8yI5Z3oU)
 
