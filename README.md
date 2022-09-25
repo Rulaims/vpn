@@ -5,7 +5,7 @@
 
 ps:下列排序不代表优劣顺序，各位自行食用。
 
-### [ELK_Cloud](https://www.elkcloud.cc/auth/register?code=5Y6w)  （这个人多了，已经有点卡了）
+### [ELK_Cloud](https://www.elkcloud.top/auth/register?code=5Y6w)  （这个人多了，已经有点卡了）
   
 ![image](https://user-images.githubusercontent.com/93764491/158548983-0159e5ac-fcb4-474b-b8b9-351356337f36.png)
 
@@ -25,7 +25,5 @@ ps:下列排序不代表优劣顺序，各位自行食用。
   
 ![image](https://user-images.githubusercontent.com/93764491/158550435-1e3c558a-9d10-43cf-afe1-0ee19623dead.png)
 
-
-各种类型几乎都有了，月付、季付、年付、一次性永久、月结永久
 
 个人建议，大家要多备几个梯子，因为到了一些重要性时间点，墙可能会异常强大哈哈哈，比如两会、每年6月4日附近日子····至于为什么是6月4日，可谷歌或维基百科1989年6月4日了解一下（胆小勿看，看了就拘）。
