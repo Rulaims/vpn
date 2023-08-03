@@ -17,10 +17,6 @@ ps:下列排序不代表优劣顺序，各位自行食用。
   
 ![image](https://user-images.githubusercontent.com/93764491/158549592-647296d2-72f4-4db5-943b-a5a90c7eff00.png)
 
-### [NaikoCloud](https://naiko.cloud/auth/register?code=VaEK)  
-  
-![image](https://user-images.githubusercontent.com/93764491/158550061-8cbf38b3-d255-4199-a289-692ffdb5d6fb.png)
-
 ### [OKSS](https://okss.us/#/register?code=uLTK9oyA)  
   
 ![image](https://user-images.githubusercontent.com/93764491/158550435-1e3c558a-9d10-43cf-afe1-0ee19623dead.png)
