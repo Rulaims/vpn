@@ -3,11 +3,11 @@
 
 ps:下列排序不代表优劣顺序，各位自行食用。
 
-### [大航海](https://dhh.moe/#/register?code=hUXVsGEx)  含有IEPL专线，这个价格很得劲了
+### [大航海](https://dhh.hair/#/register?code=hUXVsGEx)  含有IEPL专线，这个价格很得劲了
   
 ![image](https://github.com/Rulaims/vpn/assets/93764491/6cd5381c-bafb-46d8-a3f4-5f7ea16ddcef)
 
-### [OverWall](https://by.overwall.run/#/register?code=PisxQ4vX)  含有IEPL专线，价格适中吧
+### [OverWall](https://board.overwall.city/#/register?code=PisxQ4vX)  含有IEPL专线，价格适中吧
   
 ![image](https://github.com/Rulaims/vpn/assets/93764491/9a8cd64a-2cb4-44f2-91e2-8b25ad894229)
 
