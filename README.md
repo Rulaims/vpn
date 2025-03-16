@@ -11,9 +11,10 @@ ps:下列排序不代表优劣顺序，各位自行食用。
   
 ![image](https://github.com/Rulaims/vpn/assets/93764491/9a8cd64a-2cb4-44f2-91e2-8b25ad894229)
 
-### [SS加速](https://okss.us/#/register?code=ewUivzBb) 
+### [SS加速](https://user.sjiasu.com/#/register?code=ewUivzBb) 
 
-![image](https://github.com/Rulaims/vpn/assets/93764491/90f99d4c-26c2-42e5-8ca3-c12c24773c2b)
+![图片](https://github.com/user-attachments/assets/f8d22850-c54f-496a-8e42-46983a81ee59)
+
 
 
 
